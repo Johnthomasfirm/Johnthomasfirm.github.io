@@ -1,1 +1,0 @@
-# Johnthomafirm.github.io
